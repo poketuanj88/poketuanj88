@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-[Nguyễn Ánh My - Người đứng sau những thành tựu nổi bật của J88](https://j88bet.vip/nguyen-anh-my-j88/)
 
 Nguyễn Ánh My J88 được biết đến là một trong những người sáng lập tiêu biểu của thương hiệu J88. Chị đã giúp J88 có được vị thế trong lòng người chơi, cụ thể thương hiệu đã được xếp trong danh sách top 50 những sân cược có lượng người chơi lớn nhất trong năm. 
 .
